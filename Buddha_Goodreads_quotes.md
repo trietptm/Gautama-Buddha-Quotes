@@ -184,4 +184,94 @@
 * Rule your mind or it will rule you.
 * All wrong-doing arises because of mind. If mind is transformed can wrong-doing remain
 * From craving is born grief, from craving is born fear. For one freed from craving there's no grief - so how fear?
+* Monks, even if bandits were to savagely sever you, limb by limb, with a double-handled saw, even then, whoever of you harbors ill will at heart would not be upholding my Teaching. Monks, even in such a situation you should train yourselves thus: 'Neither shall our minds be affected by this, nor for this matter shall we give vent to evil words, but we shall remain full of concern and pity, with a mind of love, and we shall not give in to hatred. On the contrary, we shall live projecting thoughts of universal love to those very persons, making them as well as the whole world the object of our thoughts of universal love — thoughts that have grown great, exalted and measureless. We shall dwell radiating these thoughts which are void of hostility and ill will.' It is in this way, monks, that you should train yourselves.
+* So too, friend, purification of virtue is for the sake of reaching purification of mind; purification of mind is for the sake of reaching purification of view; purification of view is for the sake of reaching purification by overcoming doubt; purification by overcoming doubt is for the sake of reaching purification by knowledge and vision of what is the path and what is not the path; purification by knowledge and vision of what is the path and what is not the path is for the sake of reaching purification by knowledge and vision of the way; purification by knowledge and vision of the way is for the sake of reaching purification by knowledge and vision; purification by knowledge and vision is for the sake of reaching final Nibbāna [Nirvana] without clinging. It is for the sake of final Nibbāna without clinging that the holy life is lived under the Blessed One.
+* analyzing through special insight and realizing the lack of inherent existence constitute understanding of the signless.
+* those which arise dependently are free of inherent existence.
+* The darkest night is ignorance.
+* You are as the yellow leaf. The messengers of death are at hand. You are to travel far away. What will you take with you? You are the lamp To lighten the way. Then hurry, hurry. When your light shines Without impurity or desire You will come into the boundless country. Your life is falling away. Death is at hand. Where will you rest on the way? What have you taken with you? You are the lamp To lighten the way. Then hurry, hurry. When your light shines purely You will not be born And you will not die.
+* “من يعتقد أنه قادر فهو قادر.”
+* Like a caring mother holding and guarding the life of her only child, so with a boundless heart of lovingkindness, hold yourself and all beings as your beloved children.
+* Like the moon, come out from behind the clouds! Shine.
+* He has no need for faith who knows the uncreated, who has cut off rebirth, who has destroyed any opportunity for good or evil, and cast away all desire. He is indeed the ultimate man.
+* Greater than all the joys Of heaven and earth, Greater still than dominion Over all the worlds, Is the joy of reaching the stream.
+* We are what we think. All that we are arises with our thoughts. With our thoughts, we make the world.
+* Bhikkus, all is burning. And what is the all that is burning? The eye is burning, visible forms are burning, eye-consciousness is burning, eye-contact is burning; also whatever is felt as pleasant or painful or neither-painful-nor-pleasant that arises with eye-contact as its condition, that too is burning. Burning with what? Burning with the fire of greed, with the fire of hate, with the fire of delusion, with birth, ageing and death, with sorrow, with lamentation, with pain, grief and despair it is burning.
+* Success isn't the key to happiness. Happiness is the key to success.
+* Meditate, Ānanda, do not delay, or else you will regret it later. This is our instruction to you.
+* Love yourself and watch --- today, tomorrow, and always.
+* I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. The way is not in the sky. The way is in the heart.
+* To live a pure unselfish life, one must count nothing as one's own in the midst of abundance.
+* The rain could turn to gold and still your thirst would not be slaked. Desire is unquenchable or it ends in tears, even in heaven.
+* Don't give yourself to negligence, Don't devote yourself to sensual pleasure, Vigilant and absorbed in meditation One attains abundant happiness.
+* Pure-limbed, white-canopied, one-wheeled, the cart roles on. See him that cometh: faultless, stream-cutter, bondless he.
+* To life in the consciousness of the inevitability of suffering, of becoming enfeebled, of old age and of death, is impossible -- we must free ourselves from life, from all possible life.
+* Your actions are your only belongings.
+* This is how to contemplate our conditioned existence in this fleeting world: Like a tiny drop of dew, or a bubble floating in a stream; Like a flash of lightning in a summer cloud, Or a flickering lamp, an illusion, a phantom, or a dream. So is all conditioned existence to be seen.
+* This I tell you: decay is inherent in all conditioned things. Work out your own salvation, with diligence.
+* You can not travel the path until you have become the path itself
+* Our life is shaped by our mind, for we become what we think.
+* To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.
+* The foot feels the foot when it feels the ground.
+* Tiga hal yang tidak bisa lama tersembunyi : Matahari , bulan , dan kebenaran
+* Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. A
+* If a person has faith, Bhāradvāja, he preserves truth when he says: 'My faith is thus'; but he does not yet come to the conclusion: 'Only this is true, anything else is wrong.' In this way, Bhāradvāja, there is the preservation of truth; in this way he preserves truth; in this way we describe the preservation of truth. But as yet there is no discovery of truth.
+* Vsetko co sme, je dosledkom je dosledkom toho, co sme si mysleli
+* Through the round of many births I roamed without reward, without rest, seeking the house-builder. Painful is birth again & again. House-builder, you're seen! You will not build a house again. All your rafters broken, the ridge pole destroyed, gone to the Unformed, the mind has come to the end of craving.
+* All that we are is the result of what we have thought. The mind is everything. What we think we become.
+* I shall live here in the rains, There in winter, Elsewhere in summer," muses the fool, Not aware of the nearness of death.
+* Suppose a man threw into the sea a yoke with one hole in it, and the east wind carried it to the west, and the west wind carried it to the east, and the north wind carried it to the south, and the south wind carried it to the north. Suppose there were a blind turtle that came up once at the end of each century. What do you think, bhikkhus? Would that blind turtle put his neck into that yoke with one hole in it?" "He might, venerable sir, sometime or other at the end of a long period." "Bhikkhus, the blind turtle would sooner put his neck into that yoke with a single hole in it than a fool, once gone to perdition, would take to regain the human state, I say. Why is that? Because there is no practising of the Dhamma there, no practising of what is righteous, no doing of what is wholesome, no performance of merit. There mutual devouring prevails, and the slaughter of the weak.
+* A fool suffers, thinking, "I have children! I have wealth!" One's self is not even one's own. How then are children? How then is wealth?
+* When the mind is pure, joy follows like a shadow that never leaves.
+* Oneself, indeed, is one's own protector. One does, indeed [make] one's own destiny. Therefore, control yourself As a merchant does a fine horse.
+* Nė viena pasaka nepatikėkit, Nors šimtmečius ilgus Daugybė kraštų jas laikė tikrove. Netikėkit ir tuo, ką Kiti žmonės be perstojo kalba, Nors išminčiaus žodžius jie kartotų Ar pasiremtų raštais šventais. Netikėkite niekuo, Sapnuose ką regėjot, ką vaizduotė sukūrė, Nors manot, kad siunčia tuos vaizdinius Dievas. Nepriimkite žodžių už tiesą, Nors kažkas juos pridengtų šventuolio ar Meistro vardu. Patikėkit tik tuo, ko karti patirtis Ilgai Jus pačius per išbandymus mokė, Kas nekliudo gerovės nei Jums, nei kitiems.
+* Emotion arise from Desire, hence an Illusion.
+* The less you have, the less you have to worry about.
+* Năm pháp nào cần phải an trú nội tâm? "Ta nói đúng thời, không phải phi thời; ta nói đúng sự thật, không phải không đúng sự thật; ta nói lời nhu hòa, không phải nói lời thô bạo; ta nói lời liên hệ đến mục đích, không phải lời không liên hệ đến mục đích; ta nói với tâm từ bi, không nói với tâm sân hận". Năm pháp này cần phải an trú nội tâm.
+* Just as on a rubbish heap swept up on a main road a purely fragrant, delightful lotus might there spring up, Even so amidst those rubbish heaps (of men) does the savaka of the Perfectly Enlightened One outshine in insight the blind puthujjana
+* ```Jīvaka, I say that there are three instances in which meat should not be eaten: when it is seen, heard, or suspected [that the living being has been slaughtered for oneself]. I say that meat should not be eaten in these three instances. I say that there are three instances in which meat may be eaten: when it is not seen, not heard, and not suspected [that the living being has been slaughtered for oneself]. I say that meat may be eaten in these three instances.```
+* It’s your road…and yours alone… Others may walk it with you, but no one can walk it for you. No matter what path you choose, really walk it.
+* Many do not realize that We here must die For those who realize this Quarrels end.
+* Ambition is like love, impatient of both delays and rivals
+* Delightful are forests Where the public does not delight. There the passion-free delight, Not seeking sensual pleasure.
+* In life we cannot avoid change, we cannot avoid loss. Freedom and happiness are found in the flexibility and ease with which we move through change.
+* Tune as the sitthar, neither high nor low, and we will dance away the hearts of men.
+* Just as treasures are uncovered from the earth, so virtue appears from good deeds, and wisdom appears from a pure and peaceful mind. To walk safely through the maze of human life, one needs the light of wisdom and the guidance of virtue.
+* Though all one's life a fool associates with a wise person,one no more comprehends the Truth than a spoon tastes the flavor of the soup.
+* Your worst enemy cannot hurt you as much as your own thoughts, when you haven’t mastered them.
+* You don't gather the beauty of a flower by plucking her petals.
+* We live in illusion and the appearance of things. There is a reality. We are that reality. When you understand this, you see that you are nothing, and being nothing, you are everything. That is all.
+* Love is a fleeting emotion, to reach true nirvana one must know themselves and forsake love, for it breeds contempt.
+* Just as a candle cannot burn without fire, men cannot live without a spiritual life.
+* És Brahmá, a Teremtő, felső ruháját fél vállán átvetve, összetett kézzel meghajolt a Magasztos felé, és így szólította meg a Magasztost: - Uraim, a Magasztosnak hirdetnie kell a Tant! A Megvilágosultnak hirdetnie kell a Tant! Vannak lények, akiknek lelki szemeit alig fedi por, de ha nem hallják a Tant, akkor nem érik el a megváltást. Ezek meg fogják érteni a Tant. Így beszélt Brahmá, a Teremtő, majd így folytatta: Magadha földjén ezelőtt a tiszta Tant gyarló személyek tanították tévesen. Halhatatlanság kapuját te tárd ki most! Hallják világosan a tiszta, szent igét! Ki hegytetőre, fel a sziklabércre jut, fentről körülnéz az alanti tájakon. Te mindent-látó, te is így tekints alá az igazság várfokáról a szenvedő, szakadatlanul születő-kiszenvedő lényekre, mert te legyőzted a szenvedést. Kelj fel, te nagy csata vitézi győztese! Járd a világot, seregek vezére! Tanítsd a Tant, magasztos Szent! Lesznek, akik megértenek.
+* Virtuous people always let go. They don't prattle about pleasures and desires. Touched by happiness and then by suffering, The sage shows no sign of being elated or depressed.
+* Sensual craving gives rise to grief; Sensual craving gives rise to fear. For someone released from sensual craving There is no grief; And from where would be fear?
+* Fearless, free of craving, and without blemish, Having reached the goal And destroyed the arrows of becoming One is in one's final body.
+* Szerzetesek, vannak tanulatlan, közönséges emberek, akik nem gondolnak a nemes dolgokkal, nem hallottak a nemes tanról, járatlanok a nemes tanban; nem gondolnak az igaz emberekkel, nem hallottak az igaz emberek viselkedéséről, járatlanok az igaz ember viselkedésében. Az ilyenek nem ismerik fel a fontos tanokat, nem ismerik fel a fölösleges tanokat. Mivel nem ismerik fel a fontos tanokat, és nem ismerik fel a fölösleges tanokat, a fölösleges tanokkal foglalkoznak, és a fontos tanokkal nem foglalkoznak. Melyek azok a fölösleges tanok, szerzetesek, amelyekkel foglalkoznak? Ha egy tannal való foglalkozás következtében feltámad a még fel nem támadt örömvágy indulata, a már feltámadt örömvágy indulata pedig erősödik, feltámad a még fel nem támadt létezni vágyás indulata, a már feltámadt létezni vágyás indulata pedig erősödik, feltámad a még fel nem támadt balgaság indulata, a már feltámadt balgaság indulata pedig erősödik, az ilyen tan fölösleges, és ők ezzel foglalkoznak.
+* na kalamat va na anche k bayan mikonand hich yek vagheiate bartar nist.zira bartarin vagheiat chizist k ba mohavere natavan b omghe an rah yaft.
+* Seseorang harus mencarikan kebahagiaan untuk orang lain sama seperti yang diinginkan untuk diri sendiri
+* Just as a line drawn on water with a stick will quickly vanish and will not last long; even so is human life like a line drawn on water. It is short, limited, and brief; it is full of suffering, full of tribulation. This one should wisely understand, one should do good and live a pure life; for none who is born can escape death.
+* Joy comes not through possession or ownership but through a wise and loving heart.
+* First, rely on the spirit and meaning of the teachings, not on the words; Second, rely on the teachings, not on the personality of the teacher; Third, rely on real wisdom, not superficial interpretation; And fourth, rely on the essence of your pure Wisdom Mind, not on judgmental perceptions.
+* He who envies others does not obtain peace of mind.
+* What we think, we become.
+* All Beings are owners of their Karma. Whatever volitional actions they do, good or evil, of those they shall become the heir.
+* You must make the effort yourself. The Masters only point the way.
+* ដីកាទាំង១៣របស់ព្រះសម្មាសម្ពុទ្ធ ១​. ការសម្រេចផលដ៏អស្ចារ្យបំផុតគឺការអស់ភាពអត្មានិយម។ ២. តម្លៃដ៏ខ្ពង់ខ្ពស់បំផុតគឺភាពម្ចាស់ការលើខ្លួនឯង។ ៣. គុណតម្លៃដ៏ប្រសើរបំផុតគឺការបម្រើអ្នកដទៃ។ ៤. សិក្ខាបទដ៏ល្អបំផុតគឺសតិតាមទាន់។ ៥. ឪសថដ៏សក្ដិសិទ្ធបំផុតគឺការអស់ការប្រកាន់ភ្ជាប់។ ៦. ការប្រព្រឹត្តដ៏ត្រឹមត្រូវបំផុតគឺការមិនដើរស្របតាមរបៀបពិភពលោក។ ៧. មន្ដគាថាដ៏វិសេសវិសាលបំផុតគឺការអស់ទៅនៃចំណង់។ ៨. សប្បុរសធម៌ដ៏បរិសុទ្ធបំផុតគឺការមិនជាប់ជំពាក់។ ៩. សេចក្ដីសុខដ៏បវរបំផុតគឺចិត្តស្ងប់។ ១០.សេចក្ដីអត់ធន់ដ៏ខ្ពស់បំផុតគឺការអោនលំទោន។ ១១. សេចក្ដីប្រឹងប្រែងដ៏ប្រសើរបំផុតគឺការមិនព្រួយបារម្ភអំពីលទ្ធផល។ ១២. វិបស្សនាដ៏ស៊ីជម្រៅបំផុតគឺចិត្តមិនប្រតិកម្ម(ចិត្តឩបេក្ខា) ១៣. បញ្ញាដ៏ជ្រៅជ្រះបំផុតគឺការមើលធ្លុះអាការៈខាងក្រៅ។
+* Life is pain
+* For behold your body — A painted puppet, a toy, Jointed, sick and full of false imaginings, A shadow that shifts and fade.
+* What is the happiness ? Is it really happiness ? Nothing stable, just happen, stay and decay... Everything is impermanence, dissatisfaction and nothing can ever belong to itself
+* All that we are is a result of what we have thought.
+* All too soon this body Will lie on the ground, Cast aside, deprived of consciousness, Like a useless scrap of wood.
+* Who have not led the holy life nor riches won while young, they linger on as aged cranes around a fished-out pond.
+* AS one instructs others, So should one do oneself: Only the self-controlled should restrain others. Truly, it's hard to restrain oneself.
+* Those who are free of resentful thoughts surely find peace.
+* When desire flows, Pleasure arises. Attached to happiness, seeking enjoyment, People are subject to birth and old age.
+* Patience is the highest asceticism.
+* The moment you see how important it is to love yourself, you will stop making others suffer.
+* Venez, contemplez ce monde, multicolore comme les chars royaux, dans lequel les sots se plongent, et avec lequel les sages ne conservent point d’attaches.
+* Those who do not know satisfaction, even when living in a heavenly palace, are still not satisfied. Those who do not know satisfaction, even if rich, are poor. People who know satisfaction, even if poor, are rich.
+* I am not the I that you see. Most of these quotes do not belong to me.
+* The universe itself is change and life itself is but what you deem it
+* To enjoy good health, to bring true happiness to one's family, to bring peace to all, one must first discipline and control one's own mind. If a man can control his mind he can find the way to Enlightenment, and all wisdom and virtue will naturally come to him.
 * 
