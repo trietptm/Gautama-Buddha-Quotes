@@ -94,4 +94,94 @@
 * life is a river always flowing. do not hold onto things. work hard.
 * Those who attempt to conquer hatred by hatred are like warriors who take weapons to overcome others who bear arms. This does not end hatred, but gives it room to grow. But, ancient wisdom has advocated a different timeless strategy to overcome hatred. This eternal wisdom is to meet hatred with non-hatred. The method of trying to conquer hatred through hatred never succeeds in overcoming hatred. But, the method of overcoming hatred through non-hatred is eternally effective. That is why that method is described as eternal wisdom.
 * There are no chains like hate...dwelling on your brother's faults multiplies your own. You are far from the end of your journey.
+* Be a lamp unto yourself. Work out your liberation with diligence.
+* Remembering a wrong is like carrying a burden on the mind.
+* Silence the angry man with love. Silence the ill-natured man with kindness. Silence the miser with generosity. Silence the liar with truth.
+* He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye.
+* There has to be evil so that good can prove its purity above it.
+* There isn't enough darkness in all the world to snuff out the light of one little candle.
+* More than those who hate you, more than all your enemies, an undisciplined mind does greater harm.
+* A man traveling across a field encountered a tiger. He fled, the tiger after him. Coming to a precipice, he caught hold of the root of a wild vine and swung himself down over the edge. The tiger sniffed at him from above. Trembling, the man looked down to where, far below, another tiger was waiting to eat him. Only the vine sustained him. Two mice, one white and one black, little by little started to gnaw away the vine. The man saw a luscious strawberry near him. Grasping the vine with one hand, he plucked the strawberry with the other. How sweet it tasted!
+* Anger will never disappear so long as thoughts of resentment are cherished in the mind.
+* To insist on a spiritual practice that served you in the past is to carry the raft on your back after you have crossed the river.
+* There is nothing so disobedient as an undisciplined mind, and there is nothing so obedient as a disciplined mind.
+* Be where you are; otherwise you will miss your life.
+* It is better to travel, than to arrive
+* Most problems, if you give them enough time and space, will eventually wear themselves out
+* Every human being is the author of his own health or disease.
+* one moment can change a day, one day can change a life and one life can change the world
+* be greatly aware of the present.
+* Be vigilant; guard your mind against negative thoughts.
+* How wonderful! How wonderful! All things are perfect, exactly as they are.
+* All descriptions of reality are temporary hypotheses.
+* Imagine that every person in the world is enlightened but you. They are all your teachers, each doing just the right things to help you learn perfect patience, perfect wisdom, perfect compassion.
+* All things appear and disappear because of the concurrence of causes and conditions. Nothing ever exists entirely alone; everything is in relation to everything else.
+* Learn this from water: loud splashes the brook but the oceans depth are calm.
+* The Gift of Truth excels all other Gifts.
+* Happiness does not depend on what you have or who you are, it solely relies on what you think.
+* Look not to the faults of others, nor to their omissions and commissions. But rather look to your own acts, to what you have done and left undone.
+* Though one should live a hundred years without wisdom and control, yet better, indeed, is a single day’s life of one who is wise and meditative.
+* I never see what has been done; I only see what remains to be done.
+* The forest is a peculiar organism of unlimited kindness and benevolence that makes no demands for its sustenance and extends generously the products of its life activity; it affords protection to all beings, offering shade even to the axe-man who destroys it.
+* Bahujanahitāya bahujanasukhāya lokānukampāya: For the good of the many, for the happiness of the many, out of compassion for the world.
+* Wakefulness is the way to life. The fool sleeps As if he were already dead, But the Master is awake And he lives forever. He watches. He is clear. How happy he is! For he sees that wakefulness is life. How happy he is, Following the path of the awakened. With Great perseverance He meditates, seeking Freedom and happiness.
+* Few among men are they who cross to the further shore. The others merely run up and down the bank on this side.
+* Through countless births in the cycle of existence I have run, not finding although seeking the builder of this house; and again and again I faced the suffering of new birth. Oh housebuilder! Now you are seen. You shall not build a house again for me. All your beams are broken, the ridgepole is shattered. The mind has become freed from conditioning: the end of craving has been reached.
+* Words have the power to both destroy and heal. When words are both true and kind, they can change our world.
+* The non-doing of any evil, the performance of what's skillful, the cleansing of one's own mind: this is the teaching of the Awakened.
+* He who loves 50 people has 50 woes; he who loves no one has no woes.
+* Generosity brings happiness at every stage of its expression. We experience joy in forming the intention to be generous. We experience joy in the actual act of giving something. And we experience joy in remembering the fact that we have given.
+* From a withered tree, a flower blooms
+* To be idle is a short road to death and to be diligent is a way of life; foolish people are idle, wise people are diligent.
+* The mind is everything. What you think, you become
+* The only real failure in life is not to be true to the best one knows.
+* The teaching is simple. Do what is right. Be Pure.
+* The virtuous man delights in this world and he delights in the next
+* Whoever sees me sees the teaching, and whoever sees the teaching sees me.
+* Do not overlook tiny good actions, thinking they are of no benefit; even tiny drops of water in the end will fill a huge vessel. Do not overlook negative actions merely because they are small; however small a spark may be, it can burn down a haystack as big as a mountain.
+* Victory breeds hatred. The defeated live in pain. Happily the peaceful live, giving up victory and defeat.
+* Awake. Be the witness of your thoughts. You are what observes, not what you observe
+* The ignorant man is an ox. He grows in size, not in wisdom.
+* A jug fills drop by drop.
+* Work out your own salvation. Do not depend on others.
+* Resolutely train yourself to attain peace.
+* Following the Noble Path is like entering a dark room with a light in the hand; the darkness will all be cleared away, and the room will be filled with light.
+* If you are facing in the right direction, all you need to do is keep on walking.
+* Yes, Kālāmas, it is proper that your have doubt, that you have perplexity, for a doubt has arisen in a matter which is doubtful. Now, look you Kālāmas, do not be led by reports, or traditions, or hearsay. Be not led by the authority of religious texts, not by the delight in speculative opinions, nor by seeming possibilities, not by the idea: 'this is our teacher'. But, O Kālāmas, when you know for yourself that certain things are unwholesome, and wrong, and bad, then give them up... And when you know for yourself that certain things are wholesome and good, then accept them and follow them.
+* contentment is the greatest wealth
+* The wise man makes an island of himself that no flood can overwhelm.
+* Just to say 'I believe' or 'I do not doubt' does not mean that you understand and see. To force oneself to see and accept a thing without understanding is political and not spiritual or intellectual.
+* Those who consider the inessential to be essential And see the essential as inessential Don't reach the essential, Living in the field of wrong intention
+* What you think, you become. What you feel, you attract. What you imagine, you create.
+* In this world Hate never yet dispelled hate Only love dispels hate This is the law Ancient and inexhaustible You to shall pass away Knowing this,how can you quarrel
+* It is in a man's own mind, not his enemy or foe, that leads him to evil ways.
+* Subhuti, someone might fill innumerable worlds with the seven treasures and give all away in gifts of alms, but if any good man or any good woman awakens the thought of Enlightenment and takes even only four lines from this Discourse, reciting, using, receiving, retaining and spreading them abroad and explaining them for the benefit of others, it will be far more meritorious. Now in what manner may he explain them to others? By detachment from appearances-abiding in Real Truth. -So I tell you- Thus shall you think of all this fleeting world: A star at dawn, a bubble in a stream; A flash of lightening in a summer cloud, A flickering lamp, a phantom, and a dream. When Buddha finished this Discourse the venerable Subhuti, together with the bhikshus, bhikshunis, lay-brothers and sisters, and the whole realms of Gods, Men and Titans, were filled with joy by His teaching, and, taking it sincerely to heart they went their ways.
+* When you like a flower, you just pluck it. But when you love a flower, you water it daily.
+* As a flower that is lovely and beautiful, but is scentless, even so fruitless is the well-spoken word of one who practices it not.
+* Ennui has made more gamblers than avarice, more drunkards than thirst, and perhaps as many suicides as despair.
+* Know well what leads you forward and what holds you back, and choose the path that leads to wisdom.
+* Here bhikkhus, some misguided men learn the Dhamma–discourses, stanzas, expositions, verses, exclamations, sayings, birth stories, marvels, and answers to questions–but having learned the Dhamma, they do not examine the meaning of those teachings with wisdom. Not examining the meaning of those teachings with wisdom, they do not gain a reflective acceptance of them. Instead they learn the Dhamma only for the sake of criticising others and for winning in debates, and they do not experience the good for the sake of which they learned the Dhamma.
+* Will not be punished for your anger, your anger is the punishment.
+* if the selflessness of phenomena is analyzed and if this analysis is cultivated, it causes the effect of attaining nirvana. through no other cause does one come to peace.
+* Of bones the city is made, Plastered with flesh and blood, Where decay and death are deposited, And pride, and ingratitude.
+* Every experience, no matter how bad it seems, holds within it a blessing of some kind. The goal is to find it.
+* Therefore, be ye lamps unto yourselves, be a refuge to yourselves. Hold fast to Truth as a lamp; hold fast to the truth as a refuge. Look not for a refuge in anyone beside yourselves. And those, who shall be a lamp unto themselves, shall betake themselves to no external refuge, but holding fast to the Truth as their lamp, and holding fast to the Truth as their refuge, they shall reach the topmost height.
+* Live in joy, in love, even among those who hate. Live in joy, in health, even among the afflicted. Live in joy, in peace, even among the troubled. Look within, be still. Free from fear and attachment, know the sweet joy of the way.
+* If you knew what I know about the power of giving you would not let a single meal pass without sharing it in some way.
+* What we are today comes from our thoughts of yesterday, and present thoughts build our life of tomorrow: our life is the creation of our own mind
+* How blissful it is, for one who has nothing. Attainers-of-wisdom are people with nothing. See him suffering, one who has something, a person bound in mind with people.
+* As a lotus flower is born in water, grows in water and rises out of water to stand above it unsoiled, so I, born in the world, raised in the world having overcome the world, live unsoiled by the world.
+* Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
+* THE FOUR NOBLE TRUTHS I. Suffering does exist. II. Suffering arises from "attachment" to desires. III. Suffering ceases when "attachment" to desire ceases. IV. Freedom from suffering is possible by practicing the eightfold path: 1. Right understanding (view). 2. Right intention (thought). 3. Right speach. 4. Right action. 5. Right livelihood. 6. Right effort. 7. Right mindfulness. 8. Rght meditation (concentration). Buddha's fourfold consolation: With a mind free from greed and unfriendliness, incorruptible, and purified, the noble disciple is already during this lifetime assure of a fourfold consolation: “If there is another world (heaven), and a cause and effect (Karma) of good and bad actions, then it may be that, at the dissolution of the body, after death, I shall be reborn in a happy realm, a heavenly world.” Of this first consolation (s)he is assured. “And if there is no other world, no reward and no punishment of good and bad actions, then I live at least here, in this world, an untroubled and happy life, free from hate and unfriendliness.” Of this second consolation (s)he is assured. “And if bad things happen to bad people, but I do not do anything bad (or have unfriendliness against anyone), how can I, who am doing no bad things, meet with bad things?” Of this third consolation (s)he is assured. “And if no bad things happen to bad people, then I know myself in both ways pure.” Of this fourth consolation (s)he is assured.
+* Not merely by rules of conduct and religious observances, nor by much learning either, nor even by attainment of concentration, nor by sleeping alone, do I reach the happiness of freedom, to which no worldlings attain. If you have not put an end to compulsions, nurse your faith
+* those which are produced from causes are not produced. they do not have an inherent nature of production. those which depend on causes are said to be empty; those who know emptiness are aware.
+* Our theories of the eternal are as valuable as are those that a chick which has not broken its way through its shell might form of the outside world.
+* All phenomena do not inherently exist because of being dependent-arisings. All phenomena do not inherently exist because of being dependently imputed.
+* Opinion, O disciples, is a disease; opinion is a tumour; opinion is a sore. He who has overcome all opinion, O disciples, is called a saint, one who knows.
+* I consider the positions of kings and rulers as that of dust motes. I observe treasure of gold and gems as so many bricks and pebbles. I look upon the finest silken robes as tattered rags. I see myriad worlds of the universe as small seeds of fruit, and the greatest lake in India as a drop of oil on my foot. I perceive the teachings of the world to be the illusion of, magicians. I discern the highest conception of emancipation as golden brocade in a dream, and view the holy path of the illuminated one as flowers appearing in one's eyes. I see meditation as a pillar of a mountain, Nirvana as a nightmare of daytime. I look upon the judgment of right and wrong as the serpentine dance of a dragon, and the rise and fall of beliefs as but traces left by the four seasons.
+* When the Aggregates arise, decay and die, O bhikkhu, every moment you are born, decay, and die.
+* Thousands of candles can be lit from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared.
+* Rule your mind or it will rule you.
+* All wrong-doing arises because of mind. If mind is transformed can wrong-doing remain
+* From craving is born grief, from craving is born fear. For one freed from craving there's no grief - so how fear?
 * 
